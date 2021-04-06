@@ -8,3 +8,5 @@ Ethan Gangotra - Artist https://www.artstation.com/gango0701,
 Reinaldo A. Ramirez Diaz - Artist https://www.artstation.com/kurumaya, 
 Liam Bradbury - Artist https://www.artstation.com/bradburyprojects, 
 Eti Udosen - Artist https://www.artstation.com/etiudosen, 
+
+Itch link - https://kurumaya-gransoren.itch.io/to-the-edge-dj-vu
